@@ -8,7 +8,7 @@
 - 🧐 **Curious tech enthusiast**, always eager to learn and build cool things
 - 🎯 Currently pursuing a **BS in Computer Science** with a focus on **Artificial Intelligence**
 - 🚀 I love working on **side projects** when I have the chance and exploring **new technologies**
-- 📸 **Photography & gaming** keep me inspired outside of coding 🎮  
+- 📸 **Photography, anime & gaming** keep me inspired outside of coding 🎮  
 
 ---
 
